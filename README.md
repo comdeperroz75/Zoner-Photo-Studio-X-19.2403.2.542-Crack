@@ -1,0 +1,1 @@
+# Zoner-Photo-Studio-X-19.2403.2.542-Crack
